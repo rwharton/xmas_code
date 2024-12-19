@@ -1,5 +1,16 @@
-Detective Tom Polhaus: *Heavy. What is it?*
+*Heavy. What is it?*
 
-Sam Spade: *The, uh, stuff that dreams are made of.*
+*The, uh, stuff that dreams are made of.*
 
-Detective Tom Polhaus: *Huh?*
+*Huh?*
+
+
+---
+
+I don't know what you like best, so you can 
+have a big slice or a little slice.  They might 
+taste different but I made them with the same 
+recipe.
+
+If you get stuck there's another Stück in 
+the freezer.
